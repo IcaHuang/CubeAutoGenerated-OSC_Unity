@@ -11,3 +11,6 @@
 https://user-images.githubusercontent.com/26932284/157405110-b2ce7eb4-1a1f-402d-9ea3-215d38d8740e.mov
 
 ### 跟随OSC
+
+https://user-images.githubusercontent.com/26932284/157410625-aebf5146-9762-4771-a3d9-98f9f1f4a728.mp4
+
